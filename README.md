@@ -1,2 +1,2 @@
 # aora-visitor-guides
-AORA &amp; Dingo Dave Visitor Guides - Paronella Park and Byfield National Park
+AORA & Dingo Dave Visitor Guides — Paronella Park, Byfield National Park, and Edges of the Mainland.
